@@ -1,0 +1,7 @@
+![Capture](https://github.com/Aatmaj-Zephyr/Computer-networks/assets/83284294/23e7a691-0b08-455e-915f-60a83e742ee7)
+![Uploading Capture1.PNG…]()
+![Uploading Capture3.PNG…]()
+![Uploading Capture4.PNG…]()
+![Uploading Capture5.PNG…]()
+![Uploading Capture6.PNG…]()
+![Uploading Capture7.PNG…]()
